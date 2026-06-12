@@ -48,7 +48,7 @@ Además de la tecnología, disfruto mucho de:
 
 * 📧 **Email:** [tomasgotfryd0@gmail.com](mailto:tomasgotfryd0@gmail.com)
 * 📸 **Instagram:** [@tomasgotfryd](https://instagram.com/tomasgotfryd) *(Podés cambiar el enlace final por el tuyo exacto)*
-* 🎥 **YouTube:** [Canal de Tomas](https://youtube.com/@tomasgotfryd) *(Podés cambiar el enlace final por el tuyo exacto)*
+* 🎥 **YouTube:** [Canal de Tomas](https://www.youtube.com/@tomasezequielgotfryd1855)
 * 🎵 **TikTok:** [@tomasgotfryd](https://tiktok.com/@tomasgotfryd) *(Podés cambiar el enlace final por el tuyo exacto)*
 
 ---
