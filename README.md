@@ -42,6 +42,12 @@ Además de la tecnología, disfruto mucho de:
 
 ---
 
+## 📂 Proyectos Destacados
+
+*   🚀 **[Repo26 - To-Do App](https://github.com/tomasgot123tyt/Repo26):** Una aplicación front-end sencilla para gestionar tareas diarias, desarrollada con HTML, CSS y JavaScript modernos.
+
+---
+
 ## 📬 Contacto y Redes
 
 ¡Conectemos! Podés encontrarme en mis diferentes plataformas utilizando los siguientes botones:
